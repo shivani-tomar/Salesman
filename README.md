@@ -2,7 +2,7 @@
 ### How to be a best saler!!!!!!
 
 Being a salesman is not a big deal in this world but being a best salesman and crack every deal is seriouly a very big 
-deal.You can be anything but achieveing mastery in a particular field takes some time , logics and practice.
+deal.You can be anything but achieving mastery in a particular field takes some time , logics and practice.
 
 So , In this repository , I am going to tell you the key points of being a good salesman which can be achieved by 
 implementing these tricks in your daily life.
