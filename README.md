@@ -18,7 +18,7 @@ These key points are :-
 7) Explaing how it is different from other product in the market
 8) Explaining how the road map of the product will go on.
 9) Convince client that they are paying for useful and worthful thing
-10) Relate your product with clients's day to day life and tell how much comfortable life will be after buying the         product
+10) Relate your product with clients's day to day life and tell how much comfortable life will be after buying the      product
 11)Treat customer as God
 
 Please click on the links for detailed summary.
